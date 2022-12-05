@@ -1,5 +1,6 @@
 # RiftNite-Source
-Making it public cuz ppl think its a virus
+WHAT THE FUCK IS THIS BROOOOO 
+I DONT EVEN BELIEVE I WAS CODING THIS SHIT YEAR AGO
 
 WARNING: This is Old Launcher that Im not using anymore
 
